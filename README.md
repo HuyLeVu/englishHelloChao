@@ -8,7 +8,7 @@
  7. Take it as it comes : Bằng lòng với những gì minh có.
  8. Take it easy : Bình tĩnh nào.
  9. The whole system stinks of corruption : Cả hthống thối nát vì tham nhũng.
- 10.
+ 10. The sooner better : Càng sớm càng tốt.
  11.
  12.
  13.
