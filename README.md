@@ -9,10 +9,10 @@
  8. Take it easy : Bình tĩnh nào.
  9. The whole system stinks of corruption : Cả hthống thối nát vì tham nhũng.
  10. The sooner better : Càng sớm càng tốt.
- 11.
- 12.
- 13.
- 14.
+ 11. Son of a bitch : Thang mat day/ thang cho.
+ 12. There are some skeletons in the closet : Có vài chuyện cũ trong quá khứ.
+ 13. Skeleton at the feat : Điều làm cho cụt hứng, điều làm cho mất vui.
+ 14. A skeleton in the cupboard : Việc xấu xa phải giấu diếm, việc ô nhục phải che đậy.
  15.
  16.
  17.
