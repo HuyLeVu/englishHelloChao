@@ -13,7 +13,7 @@
  12. There are some skeletons in the closet : Có vài chuyện cũ trong quá khứ.
  13. Skeleton at the feat : Điều làm cho cụt hứng, điều làm cho mất vui.
  14. A skeleton in the cupboard : Việc xấu xa phải giấu diếm, việc ô nhục phải che đậy.
- 15.
+ 15. The quicker the better : Càng nhanh càng tốt.
  16.
  17.
  18.
