@@ -14,8 +14,8 @@
  13. Skeleton at the feat : Điều làm cho cụt hứng, điều làm cho mất vui.
  14. A skeleton in the cupboard : Việc xấu xa phải giấu diếm, việc ô nhục phải che đậy.
  15. The quicker the better : Càng nhanh càng tốt.
- 16.
- 17.
+ 16. The more, the merrier : Càng đông càng vui.
+ 17. Sence of humor : Óc hài hước.
  18.
  19.
  20.
