@@ -16,7 +16,7 @@
  15. The quicker the better : Càng nhanh càng tốt.
  16. The more, the merrier : Càng đông càng vui.
  17. Sence of humor : Óc hài hước.
- 18.
- 19.
+ 18. You stupid jerk : Thằng ngu.
+ 19. Not in the mood : Không có hứng.
  20.
  
