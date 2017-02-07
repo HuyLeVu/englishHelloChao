@@ -18,5 +18,14 @@
  17. Sence of humor : Óc hài hước.
  18. You stupid jerk : Thằng ngu.
  19. Not in the mood : Không có hứng.
- 20.
- 
+ 20. Scratch my back for me, please? :Gải lưng giùm anh đi.
+ 21. No bussiness is a success from beginning. Vạn sự khởi đầu nan.
+ 22.
+ 23.
+ 24.
+ 25.
+ 26.
+ 27.
+ 28.
+ 29.
+ 30.
