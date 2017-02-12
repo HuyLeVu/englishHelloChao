@@ -20,8 +20,8 @@
  19. Not in the mood : Không có hứng.
  20. Scratch my back for me, please? :Gải lưng giùm anh đi.
  21. No bussiness is a success from beginning. Vạn sự khởi đầu nan.
- 22.
- 23.
+ 22. That's very kind of you : Bạn thật tử tế.
+ 23. Let's get down to business : Bắt đầu vào việc nhé.
  24.
  25.
  26.
