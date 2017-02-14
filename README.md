@@ -22,9 +22,9 @@
  21. No bussiness is a success from beginning. Vạn sự khởi đầu nan.
  22. That's very kind of you : Bạn thật tử tế.
  23. Let's get down to business : Bắt đầu vào việc nhé.
- 24.
- 25.
- 26.
+ 24. My arse : cái đầu mày.
+ 25. Leave it as it goes : Mất không hối tiết.
+ 26. Leave it out : Thôi 
  27.
  28.
  29.
