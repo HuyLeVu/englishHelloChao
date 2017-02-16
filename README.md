@@ -25,7 +25,7 @@
  24. My arse : cái đầu mày.
  25. Leave it as it goes : Mất không hối tiết.
  26. Leave it out : Thôi 
- 27.
- 28.
- 29.
+ 27. That's nothing to me : Không liên quan đến tôi
+ 28. Just sit back and relax : Cứ bình tỉnh nghĩ ngơi đi.
+ 29. Keep your noise clean : Đừng dây vào rắc rối 
  30.
