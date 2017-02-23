@@ -22,10 +22,12 @@
  21. No bussiness is a success from beginning. Vạn sự khởi đầu nan.
  22. That's very kind of you : Bạn thật tử tế.
  23. Let's get down to business : Bắt đầu vào việc nhé.
- 24. My arse : cái đầu mày.
+ 24. My arse : cái đầu mày.    
  25. Leave it as it goes : Mất không hối tiết.
  26. Leave it out : Thôi 
  27. That's nothing to me : Không liên quan đến tôi
  28. Just sit back and relax : Cứ bình tỉnh nghĩ ngơi đi.
  29. Keep your noise clean : Đừng dây vào rắc rối 
- 30.
+ 30. Right the wrong : Sửa chữa sai lầm. 
+ 31. It won't take but a minute : Không lâu đâu.
+ 32. It readly make me upset : Nó thsự làm tôi khó chịu
