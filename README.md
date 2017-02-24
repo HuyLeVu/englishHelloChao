@@ -31,3 +31,4 @@
  30. Right the wrong : Sửa chữa sai lầm. 
  31. It won't take but a minute : Không lâu đâu.
  32. It readly make me upset : Nó thsự làm tôi khó chịu
+ 33. Stop asking idiotic questuions ! :Đừng có hỏi ngớ ngẫn nữa.
