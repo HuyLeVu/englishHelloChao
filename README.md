@@ -32,3 +32,6 @@
  31. It won't take but a minute : Không lâu đâu.
  32. It readly make me upset : Nó thsự làm tôi khó chịu
  33. Stop asking idiotic questuions ! :Đừng có hỏi ngớ ngẫn nữa.
+ 34. The feel blue : Tổi cảm thấy bùn bùn.
+ 35. If there's anything I can do, please don't hesitale to call me : Nếu tôi có thể làm gì, thì đừng ngại gọi cho tôi nhé.
+ 36. In next to no time : Rất nhanh.
