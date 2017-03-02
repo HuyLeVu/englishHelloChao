@@ -35,3 +35,5 @@
  34. The feel blue : Tổi cảm thấy bùn bùn.
  35. If there's anything I can do, please don't hesitale to call me : Nếu tôi có thể làm gì, thì đừng ngại gọi cho tôi nhé.
  36. In next to no time : Rất nhanh.
+ I am warning you : Tôi cảnh báo bạn.
+ Not the same : Không tốt bằng.
