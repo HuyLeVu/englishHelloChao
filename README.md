@@ -37,3 +37,6 @@
  36. In next to no time : Rất nhanh.
  I am warning you : Tôi cảnh báo bạn.
  Not the same : Không tốt bằng.
+ I am behind you : Tôi ủng hộ bạn.
+ I'm broke : Tôi cháy túi rồi.
+ What í it now : Giờ cái gì nữa đây.
