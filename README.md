@@ -40,3 +40,5 @@
  I am behind you : Tôi ủng hộ bạn.
  I'm broke : Tôi cháy túi rồi.
  What í it now : Giờ cái gì nữa đây.
+ Got for it : Cứ thử 
+ One at a time : Cứ từ từ thôi.
