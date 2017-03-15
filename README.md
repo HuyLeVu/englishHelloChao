@@ -41,4 +41,5 @@
  I'm broke : Tôi cháy túi rồi.
  What í it now : Giờ cái gì nữa đây.
  Got for it : Cứ thử 
- One at a time : Cứ từ từ thôi.
+ One at a time : Cứ từ từ thôi
+ I know it's a difficult situation, let's face it. Ok ? : Tôi biết đây là chuyện rất khó, hãy đối mặt với nó, ok 
