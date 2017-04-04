@@ -45,4 +45,5 @@
  I know it's a difficult situation, let's face it. Ok ? : Tôi biết đây là chuyện rất khó, hãy đối mặt với nó, ok  
  Take whatever measures you consider best : Cứ dùng bất kì biện pháp nào bạn cho là tốt nhất.
  Nothing venture, nothing have : Không liều thì không được gì hết.
- 
+ Remote areas : Vùng sâu vùng xa.
+ Do you two know each other :Hai người có biết nhau không
