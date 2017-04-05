@@ -46,4 +46,7 @@
  Take whatever measures you consider best : Cứ dùng bất kì biện pháp nào bạn cho là tốt nhất.
  Nothing venture, nothing have : Không liều thì không được gì hết.
  Remote areas : Vùng sâu vùng xa.
- Do you two know each other :Hai người có biết nhau không
+ Do you two know each other :Hai người có biết nhau không.
+ Strike it lucky : gặp vận may.
+ Do you really mean it : Bạ nói thật chứ.
+ Do you think he come to my birthday party ?-  You can count on it : ....- Bạn cứ yên tâm đi.
