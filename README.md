@@ -50,5 +50,7 @@
  Strike it lucky : gặp vận may.
  Do you really mean it : Bạ nói thật chứ.
  Do you think he come to my birthday party ?-  You can count on it : ....- Bạn cứ yên tâm đi.
-  rgrgfg
+  rgrgfg  
+  sadsad  
+  
  
