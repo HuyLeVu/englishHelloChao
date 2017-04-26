@@ -51,5 +51,7 @@
  Do you really mean it : Bạ nói thật chứ.
  Do you think he come to my birthday party ?-  You can count on it : ....- Bạn cứ yên tâm đi.
  I have many irons in the fire : Toi co qua nhieu viec
+ go bananas : Toi phat dien len
+ I'd rather wait until tomorow, sir. If it's all same to you : Tôi sẽ chờ đến ngày mai, thưa ông, nếu ông không phiền.
  
  
