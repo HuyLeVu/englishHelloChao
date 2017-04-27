@@ -53,5 +53,8 @@
  I have many irons in the fire : Toi co qua nhieu viec
  go bananas : Toi phat dien len
  I'd rather wait until tomorow, sir. If it's all same to you : Tôi sẽ chờ đến ngày mai, thưa ông, nếu ông không phiền.
+ Hit-and-miss : Được chăng hay chớ.
+ Give me a certain time. Cho tôi một ít thời gian.
+ I'm dying for a cup of coffee. Tôi đang thèm một ly cà phê.
  
  
