@@ -56,5 +56,7 @@
  Hit-and-miss : Được chăng hay chớ.
  Give me a certain time. Cho tôi một ít thời gian.
  I'm dying for a cup of coffee. Tôi đang thèm một ly cà phê.
+ Don't lose your cool : Đừng mất bình tĩnh.
+ 
  
  
