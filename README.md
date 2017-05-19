@@ -58,7 +58,9 @@
  I'm dying for a cup of coffee. Tôi đang thèm một ly cà phê.
  Don't lose your cool : Đừng mất bình tĩnh.
   Great tip : Độc chiêu.
-  If you keep acting so dorky, you'll never get a girl friend!: Nếu cứ cư xử kỳ cục như vậy, mày chẳng bao giờ tìm được bạn gái đâu!
+  If you keep acting so dorky, you'll never get a girl friend!: Nếu cứ cư xử kỳ cục như vậy, mày chẳng bao giờ tìm được bạn gái đâu!  
+  It's all the same to me : Tôi thì gì cũng được.  
+  
  
  
  
